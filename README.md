@@ -32,3 +32,5 @@ My moods can vary, im considered to be on the bipolar spectrum.
 I dont take confrontations well, be patient with me, at least.
                                   
 Hit that [like](https://youtu.be/98GntG2y4uM?si=f7knVqOolzi5Ansj) button!!!
+
+follow my fav moots,, they're so awesome!!! @BattleForBFDI and @scarlettpowa !!!!
