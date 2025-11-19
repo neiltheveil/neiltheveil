@@ -19,7 +19,7 @@ I cherish those around me very greatly.
 
 >You know who u r ! ^3^
 
-I am >taken
+I am (taken)
 
 Always free to cuddle or hide, i dont really mind at all.
 
