@@ -8,12 +8,13 @@
                                              Fifteen's and Donut's biggest yume (TPOT)
                                         Alien Stage, Tpot, BFDIA, Objectified, Dandy's World
                                              Forsaken, Bad Things, FNAF, Regretevator, etc!
-                                                  BLF ZYHLOFGV XLDZIY ! R hghh blf. 
+                                               BLF ZYHLOFGV XLDZIY ! R hghh blf. 
 
 
 
 
-   <img width="100" height="200" alt="image" src="https://github.com/user-attachments/assets/cdd7b788-75d7-4a03-892e-e04dd4ac34c3" />      ~  fucking evil
+                                   🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀 
+   <img width="990" height="200" alt="image" src="https://github.com/user-attachments/assets/6ab20bd6-ac10-4fdc-9d52-cc42294a7a2c" />  
 
                                                         
 
