@@ -1,6 +1,8 @@
    <img width="1280" height="395" alt="image" src="https://github.com/user-attachments/assets/cec3e56f-47b3-4ff0-8b9a-9b7fa6388625" />
 
-   <img width="950" height="50" alt="image" src="https://github.com/user-attachments/assets/e3b06997-bd21-483c-84da-538f9d2f3749" />
+   _ 0-0  -  -   <img width="20" height="100" alt="image" src="https://github.com/user-attachments/assets/bf01247a-8743-4951-993f-700b8d27580b" />  <img width="800" height="500" alt="image" src="https://github.com/user-attachments/assets/102e39ea-e8d5-4c60-85c8-50eeb854389c" />
+  <img width="20" height="100" alt="image" src="https://github.com/user-attachments/assets/bf01247a-8743-4951-993f-700b8d27580b" /> - - 0-0 _
+
 
                                                         Winter, Brandy
                                                    MINOR, 18+ DNI! , THEY, THEM 
