@@ -12,6 +12,7 @@
                                         Alien Stage, Tpot, BFDIA, Objectified, Dandy's World
                                            Forsaken, Bad Things, FNAF, Regretevator, etc!
                                                 BLF ZYHLOFGV XLDZIY ! R hghh blf. 
+  [Gnaw](https://open.spotify.com/track/4F7SWwVXyvGlCs9TtXJbUd?si=b95ce05a3a954032)  
 
 
 
