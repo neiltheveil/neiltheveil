@@ -10,7 +10,7 @@
        Gnaw, People - Alex G
 
 
-...   [rentry, BRIGHT COLORS](https://rentry.co/daemonnshank)  
+
 
 
                                                         
