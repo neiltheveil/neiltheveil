@@ -16,7 +16,7 @@
 
 
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ca716b12-bf72-49f0-8739-6883c85ccefc" /> ~
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ca716b12-bf72-49f0-8739-6883c85ccefc" /> ~
  [![Spotify](https://img.shields.io/badge/／(˃ᆺ˂)＼-☆～（ゝ。∂）hitting_it!-03D9FF?logo=spotify&logoColor=white&style=for-the-badge)](https://open.spotify.com/user/r317b2zohawvppr1oixtxaezy) ~ <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/43854011-4c42-48d1-9a70-b227d411e930" />
 
 
