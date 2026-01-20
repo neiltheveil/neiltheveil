@@ -13,7 +13,7 @@
 
   <img width="1134" height="924" alt="image" src="https://github.com/user-attachments/assets/bac42535-50a8-4a81-9adf-0401a0dd9556" />
 
-[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=r317b2zohawvppr1oixtxaezy&cover_image=true&theme=default&show_offline=true)](https://github.com/kittinan/spotify-github-profile)
+[![Spotify](https://img.shields.io/badge/Spotify-Listening-1DB954?logo=spotify&logoColor=white)](https://open.spotify.com/user/r317b2zohawvppr1oixtxaezy)
 
 
 
