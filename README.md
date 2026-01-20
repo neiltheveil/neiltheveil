@@ -6,6 +6,15 @@
 
 
 
+<p align="center">
+  ✦ <b>neil , bee</b> ✦<br>
+  <sub>illustrator + writer</sub><br>
+  <br>
+  minor / 18+ dni !<br>
+   always free 2 c+h , i don't bite ! ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა
+</p>
+
+
 
 
 
