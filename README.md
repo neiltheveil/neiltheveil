@@ -11,7 +11,8 @@
   <sub>illustrator + writer</sub><br>
   <br>
   minor / 18+ dni !<br>
-   always free 2 c+h , i don't bite ! ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა
+   always free 2 c+h , i don't bite ! ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა <br>
+       <sub>"Let's talk about it!"</sub><br>
 </p>
 
 
