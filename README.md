@@ -12,7 +12,7 @@
   <br>
   minor / 18+ dni !<br>
    always free 2 c+h , i don't bite ! ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა <br>
-       <sub>"Let's talk about it!"</sub><br>
+       <sub>"ᒪET'ᔕ TᗩᒪK ᗩᗷOᑌT IT!'</sub><br>
 </p>
 
 
