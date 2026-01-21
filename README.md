@@ -1,6 +1,6 @@
 <img width="1297" height="117" alt="image" src="https://github.com/user-attachments/assets/09100c29-fb6f-4347-a082-e34a6cf1201a" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    ㅤ [![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&size=19&duration=4811&pause=1000&color=00F73A&background=FFE60000&center=true&width=435&lines=%22Trust+me%2C+it+doesn't+matter.%22)](https://git.io/typing-svg)                                               
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   [![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&size=19&duration=4811&pause=1000&color=00F73A&background=FFE60000&center=true&width=435&lines=%22Trust+me%2C+it+doesn't+matter.%22)](https://git.io/typing-svg)                                               
 
 
 
@@ -20,7 +20,7 @@
  [![Spotify](https://img.shields.io/badge/／(˃ᆺ˂)＼-☆～（ゝ。∂）hitting_it!-03D9FF?logo=spotify&logoColor=white&style=for-the-badge)](https://open.spotify.com/user/r317b2zohawvppr1oixtxaezy) ~ <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/43854011-4c42-48d1-9a70-b227d411e930" />
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    ㅤ [![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&size=19&duration=4811&pause=1000&color=F700A5&background=FFE60000&center=true&width=435&lines=%22Seems+like+that+drug+is+working.%22)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  [![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&size=19&duration=4811&pause=1000&color=F700A5&background=FFE60000&center=true&width=435&lines=%22Seems+like+that+drug+is+working.%22)](https://git.io/typing-svg)
 
 
   <img width="1134" height="924" alt="image" src="https://github.com/user-attachments/assets/bac42535-50a8-4a81-9adf-0401a0dd9556" />
