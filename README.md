@@ -1,29 +1,30 @@
-<img width="1297" height="117" alt="image" src="https://github.com/user-attachments/assets/09100c29-fb6f-4347-a082-e34a6cf1201a" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="468" height="60" alt="image" src="https://github.com/user-attachments/assets/28660510-0600-44e4-83cd-7eb533a25652" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&size=19&duration=4811&pause=1000&color=00F73A&background=FFE60000&center=true&width=435&lines=%22Trust+me%2C+it+doesn't+matter.%22)](https://git.io/typing-svg)                                               
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&size=19&duration=4811&pause=1000&color=00F7D6&background=FFE60000&center=true&width=435&lines=%22Stop+following+me.%22)](https://git.io/typing-svg)                                               
 
 
 
 
 <p align="center">
-  ✦ <b>neil , bee</b> ✦<br>
-  <sub>illustrator + writer</sub><br>
+  ✦ <b> neil </b> ✦<br>
+  <sub>artist , illustrator</sub><br>
   <br>
-  minor / 18+ dni !<br>
-   always free 2 c+h , i don't bite ! ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა <br>
-       <sub>"ᒪET'ᔕ TᗩᒪK ᗩᗷOᑌT IT!'</sub><br>
+  stayin' true 2 da wife, ladies DO NOT HMU <br>
+      subkit + medhammer pilled <br>
+       <sub>"Watch yourself." </sub><br>
+        <sub>  <br>
 </p>
 
 
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ca716b12-bf72-49f0-8739-6883c85ccefc" /> ~
- [![Spotify](https://img.shields.io/badge/／(˃ᆺ˂)＼-☆～（ゝ。∂）hitting_it!-03D9FF?logo=spotify&logoColor=white&style=for-the-badge)](https://open.spotify.com/user/r317b2zohawvppr1oixtxaezy) ~ <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/43854011-4c42-48d1-9a70-b227d411e930" />
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2c35f4cb-8136-4c8f-8849-dd618eb9f667" /> ~
+ [![Spotify](https://img.shields.io/badge/／(˃ᆺ˂)＼-☆～（ゝ。∂）yaoi_pilled!-03D9FF?logo=spotify&logoColor=white&style=for-the-badge)](https://open.spotify.com/user/r317b2zohawvppr1oixtxaezy) ~ <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/99088d80-6bf1-46fc-8a55-acdea8101dd6" />
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&size=19&duration=4811&pause=1000&color=F700A5&background=FFE60000&center=true&width=435&lines=%22Seems+like+that+drug+is+working.%22)](https://git.io/typing-svg)
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&size=19&duration=4811&pause=1000&color=F70073&background=FFE60000&center=true&width=435&lines=%22Just+following+the+plan!!%22)](https://git.io/typing-svg)
 
-  <img width="1134" height="924" alt="image" src="https://github.com/user-attachments/assets/bac42535-50a8-4a81-9adf-0401a0dd9556" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="640" height="486" alt="image" src="https://github.com/user-attachments/assets/9f1984e0-fa58-4573-b5db-25c4eb8c071a" />
 
 
 
@@ -54,7 +55,7 @@
 
 
 
-<img width="1240" height="121" alt="image" src="https://github.com/user-attachments/assets/424362b4-3e66-45f1-bd71-9508bffbe96e" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="400" height="54" alt="image" src="https://github.com/user-attachments/assets/9d49f5a9-1a0d-4c7a-8847-1cd2f3ac5704" />
 
 
 
