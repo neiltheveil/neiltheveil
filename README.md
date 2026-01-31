@@ -24,7 +24,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&size=19&duration=4811&pause=1000&color=F70073&background=FFE60000&center=true&width=435&lines=%22Just+following+the+plan!!%22)](https://git.io/typing-svg)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="640" height="486" alt="image" src="https://github.com/user-attachments/assets/9f1984e0-fa58-4573-b5db-25c4eb8c071a" />
+ㅤㅤㅤㅤㅤㅤㅤㅤ<img width="640" height="486" alt="image" src="https://github.com/user-attachments/assets/9f1984e0-fa58-4573-b5db-25c4eb8c071a" />
 
 
 
